@@ -1,3 +1,0 @@
-# JustCamp Next
-# BudEarn
-# BudEarn
